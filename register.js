@@ -1,1 +1,1 @@
-tambah
+registrasi
